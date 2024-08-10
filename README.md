@@ -1,5 +1,5 @@
 
-### Boas vindas ao meu perfil :pink_heart
+### Boas vindas ao meu perfil 
 
 - 👋 Olá, sou a @Tatifcd!
 - 👀 Sou professora da rede estadual de SP e liciono as aula de Tecnologia e Robótica.
@@ -15,4 +15,4 @@ tatyfcd@gmail.com
 
 @Tatifcd
 
-![Até logo](https://tenor.com/pt-BR/view/kiss-mwuah-baby-gif-10053867)
+![](https://media.tenor.com/Q1FHlkwRLlgAAAAM/kiss-emoticon.gif)
