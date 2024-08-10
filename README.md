@@ -15,4 +15,4 @@ tatyfcd@gmail.com
 
 @Tatifcd
 
-![BJS](https://tenor.com/pt-BR/view/kiss-gif-4875956593066505581)
+![Até logo](https://tenor.com/pt-BR/view/kiss-mwuah-baby-gif-10053867)
